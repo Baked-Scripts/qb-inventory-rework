@@ -45,3 +45,6 @@ https://youtu.be/IHxwTEDIurI
 
 💸 Buy Here:
  https://baked-scripts.tebex.io/
+
+📨 Join Our Discord! 
+https://discord.gg/YBAx9X4j
